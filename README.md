@@ -1,1 +1,1 @@
-https://github.com/gudrhs8304/ticketory_project/issues/3#issue-3378877131
+![Image](https://github.com/user-attachments/assets/23169152-c732-4b96-abb6-591d86665ff5)
